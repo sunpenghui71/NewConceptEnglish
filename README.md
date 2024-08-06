@@ -22,6 +22,18 @@
 
 [新概念英语第三册 (刘飞飞)](https://www.youtube.com/playlist?list=PL5YAbMpT3Nh1ho20sV0bpbLFzf6J9ygPV)
 
+《新概念英语第一册》霍娜老师
+https://youtube.com/watch?v=Sj3WqZu4P0E&list=PL7QPSCAroBojgp9-X2Dv8gPpFhHLcqvKF
+
+《新概念英语第二册》田静老师
+https://youtube.com/watch?v=SF8F62duryA&list=PL7QPSCAroBog_u72arS00YtJDBX0bFnXa
+
+《新概念英语第三册》李延隆老师
+https://youtube.com/watch?v=GKPNUd33ca8&list=PL7QPSCAroBoi8lh1Nis2P8s-Kez06mjue
+
+《新概念英语第四册》李延隆老师
+https://youtube.com/watch?v=SHH5tDljf5M&list=PL7QPSCAroBoguruChBG0rzSnvvn4MHAan
+
 ### **以下非官方地址可能会失效**
 
 [【非官方】新概念英语第三册 (李延隆)](https://www.youtube.com/playlist?list=PL1pijTdUwLseVy85adDtGFNWgb2vS12d3)
