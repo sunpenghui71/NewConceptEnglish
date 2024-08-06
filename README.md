@@ -4,20 +4,6 @@
 
 ## **在线学习网站**
 
-[【官方】新概念英语第一册 (新东方)(霍娜)(新版)](https://www.youtube.com/playlist?list=PLK6q4vrvWZiOwRBJk5p13oYBlEF1MB953)
-
-[【官方】新概念英语第二册 (新东方)(田静)(旧版)](https://www.youtube.com/playlist?list=PLK6q4vrvWZiNf2s8_pmXrnLjeL5Vdepbi)
-
-[【官方】新概念英语第二册 (新东方)(田静)(新版)](https://www.youtube.com/playlist?list=PLK6q4vrvWZiOSvEYiO2EzUBIux5M7VOqu)
-
-[【官方】新概念英语第三册 (新东方)(李延隆)(新版)](https://www.youtube.com/playlist?list=PLK6q4vrvWZiOxz8hkNkkCep9QAqpg2tcx)
-
-[【官方】新概念英语第四册 (新东方)(李延隆)(新版)](https://www.youtube.com/playlist?list=PLK6q4vrvWZiMnvR5it_yjRnGiM6YfwZ8d)
-
-[【官方】新概念英语第三册 (新东方)(2016薛冰/史学冬)](https://www.youtube.com/playlist?list=PLK6q4vrvWZiMw-KFlqfupuIv8fNlsrood)
-
-[【官方】新概念英语第四册 (新东方)(2016薛冰/史学冬)](https://www.youtube.com/playlist?list=PLK6q4vrvWZiPminGdxNZSdMx3d6k4mSY_)
-
 [新概念英语第二册 (刘飞飞)](https://www.youtube.com/playlist?list=PL5YAbMpT3Nh3k4XoR6u_r1bhr_Vg00QyQ)
 
 [新概念英语第三册 (刘飞飞)](https://www.youtube.com/playlist?list=PL5YAbMpT3Nh1ho20sV0bpbLFzf6J9ygPV)
